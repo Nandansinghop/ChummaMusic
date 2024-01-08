@@ -15,7 +15,7 @@
 
 
 <h2 align="center">
-    ─「 ѕнιν мυѕιƈ 」─
+    ─「 ɴᴀɴᴅᴀɴ ᴍᴜsɪᴄ 」─
 
 ★ 𝙷𝙴𝚁𝙾𝙺𝚄 + 𝚅𝙿𝚂 ★
 </h2>
@@ -24,7 +24,7 @@
   <img src="https://telegra.ph/file/ccb70957819c2abfa5466.jpg">
 </p>
 
-**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟ॐ❥𝗧𝗚🍷𝗩𝗖🌷𝗕𝗢𝗧❥𝄟⃟🥀](https://t.me/meri_ashhiqui)**
+**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟ॐ❥ɴᴀɴᴅᴀɴ🍷ᴠᴄ🌷ʙᴏᴛ❥𝄟⃟🥀](https://t.me/ALLAH_OF_TG)**
 
 
 
